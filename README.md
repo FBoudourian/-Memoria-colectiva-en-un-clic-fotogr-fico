@@ -1,1 +1,2 @@
 # -Memoria-colectiva-en-un-clic-fotogr-fico
+La fotografía, al igual que un buen código, conecta fragmentos de historias que construyen algo más grande. Cada imagen captura momentos que no solo documentan el tiempo, sino que también despiertan emociones y crean conexiones entre generaciones. En un mundo lleno de imágenes, la clave está en aquellas que transmiten autenticidad, resonando en nuestra memoria colectiva y forjando puentes entre el pasado y el presente.
